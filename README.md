@@ -1,3 +1,2 @@
- <p align="center">C+H allowed, as long as im alone
-<p align="center">w2i, i will usually have public chat bubbles disabled so unless im actively looking in local i wont see what you say
-<p align="center">im (unfortunately) very shy. i like making friends, but i struggle to hold convos
+<p align="center">C+H ok !!
+<p align="center">w2i- i have chat off most of the time & im always offtab (unless im actively talking in public)
