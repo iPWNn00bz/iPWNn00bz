@@ -3,4 +3,4 @@
 <p align="center">chat's off most of the time
 <p align="center">i get very nervous when talking w/ people but if u wanna chat, i wont bite!!
 
-<p align="center"><a href="https://ipwnn00bz.atabook.org/">atabook</a> _(:з)∠)_
+<p align="center"><a href="https://ipwnn00bz.atabook.org/">atabook</a> _(:з)∠)_ <a href="https://pronouns.cc/@1PWNn00bz/">pronouns.cc</a>
