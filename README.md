@@ -2,6 +2,7 @@
 <p align="center">C+H ok + encouraged!!! no need 2 ask :-)
 <p align="center">chat's off most of the time
 <p align="center">i get very nervous when talking w/ people but if u wanna chat, i wont bite!!
+<p align="center">beware i have dogshit memory sorry if i crown u likea bajillion times ina  row
 
 <p align="center"><a href="https://ipwnn00bz.atabook.org/">atabook</a> _(:з)∠)_ <a href="https://pronouns.cc/@1PWNn00bz/">pronouns.cc</a>
 
