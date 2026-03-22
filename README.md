@@ -2,7 +2,7 @@
 <p align="center">C+H ok + encouraged!!! no need 2 ask :-)
 <p align="center">i get very nervous when talking w/ people but if u wanna chat, i wont bite!!
 
-<p align="center"><a href="https://ipwnn00bz.atabook.org/">atabook</a> _(:з)∠)_ <a href="https://pronouns.cc/@1PWNn00bz/">pronouns.cc</a> ≽^•⩊•^≼ <a href="https://1pwnn00b5.straw.page/">strawpage (flash/brightwarning)</a>
+<p align="center"><a href="https://ipwnn00bz.atabook.org/">atabook</a> _(:з)∠)_ <a href="https://pronouns.cc/@1PWNn00bz/">pronouns.cc</a> ≽^•⩊•^≼ 
 
 <p align="center"><img src="https://64.media.tumblr.com/0d41b51b6cc3027bbc56fa14899689c0/4160be3cc2b84620-14/s400x600/cd3c27dae81f576b37b9466b9fb46ba7bdd01cf0.gifv"/>
 
